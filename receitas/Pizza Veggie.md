@@ -33,3 +33,6 @@ Coloque no liquidificador as castanhas-de-caju (ou macadâmias), a farinha de li
 Sobre a massa, acrescente cuidadosamente o “queijo” vegan, fatias de tomate, cebola, orégano e azeitona. Leve ao forno alto (240ºC) por 45 minutos. Desligue assim que as bordas estiverem ficando moreninhas.
 
 Para deixar a receita ainda melhor para pacientes com artrite: ao retirar a pizza do forno, polvilhe duas colhes (sopa) de nozes trituradas. Isso aumenta a quantidade de ômega 3, gordura importante para quem sofre desta doença.
+
+### Fonte:
+https://www.revistavidaesaude.com.br/receita/pizza-veggie/
